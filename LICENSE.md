@@ -1,4 +1,4 @@
-
+Bartender for macOS professional Utility: automated-tasks & file-archiving offers the most advanced Bartender for macOS utility, with automated-tasks and file-archiving. Ideal for
 
 
 
